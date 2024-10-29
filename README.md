@@ -2,7 +2,7 @@
 - 👀 I’m interested in video games and learning new things
 - 🌱 I’m currently learning Python maybe C++ in the future
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me at my email paulvo0807@gmail.com
+- 📫 How to reach me at my email vophanduyviet@gmail.com
 - 😄 Pronouns: I'm a boy so...
 - ⚡ Fun fact: I like gacha games 
 
